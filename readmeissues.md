@@ -1,0 +1,1 @@
+# It was a slow process but i eventually figured things out with the help of Group 3 and Youtube
